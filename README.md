@@ -1,2 +1,2 @@
-##### the number for wonderful life ##### 
+##### the number for a wonderful life ##### 
 ###### proven effectiveness through repeated math axxxxxx ######
